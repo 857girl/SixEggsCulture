@@ -12,3 +12,8 @@
 
 ### Emm，is from a teacher called 6️⃣🥚
 
+# Warning！
+
+this website only offers datas.
+
+==if them cause any problem，all the responsibilities have no relation to us==
